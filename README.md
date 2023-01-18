@@ -1,0 +1,2 @@
+# Muhtemel-g-zleme
+Sigmakurtt 
